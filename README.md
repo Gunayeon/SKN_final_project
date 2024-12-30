@@ -53,6 +53,7 @@
 <br><br>
 
 #### 📁 프로젝트 결과
+[🎥🎥](https://youtu.be/0zDkhmMH-3c)
 
 
 <br><br>
